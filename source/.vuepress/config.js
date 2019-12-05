@@ -9,6 +9,9 @@ module.exports = {
       rel: 'noopener noreferrer'
     }
   },
+  lang: "zh-CN",
+  title: "猿导航",
+  description: "程序猿的网址导航",
   locales: {
     "/zh/": {
       lang: "zh-CN",
