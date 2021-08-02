@@ -15,8 +15,14 @@ body {
     height: 100%;
 }
 
-#bgimage {
-    position: fixed;
+.bgImage {
+    width: 100%;
+    height: 100%;
+    margin: 0;
+    padding: 0;
+    background-size: cover;
+    background-repeat: no-repeat;
+    background-position: center;    position: fixed;
     animation: fadein 500ms;
 }
 
