@@ -292,3 +292,231 @@ Jenkins中文文档：https://www.jenkins.io/zh/doc/
 全历史 https://www.allhistory.com/
 
 https://github.com/zhaoolee/OnlineToolsBook
+
+
+影视
+
+片库 https://www.pianku.la/
+真不卡 http://zhengbuka.vip/
+火鸟 https://www.ceisip.com/
+茶杯狐 https://www.cupfox.com/
+No视频 https://www.novipnoad.com/
+http://www.xabxzdz.com/
+
+
+
+https://epdf.pub/ pdf搜索下载
+
+云盘狗 https://www.yunpangou.com/
+片库网 https://www.mypianku.net/
+PPT 超级市场 https://pptsupermarket.com/
+AirPano https://airpano.org.cn/
+小鸡词典 https://jikipedia.com/
+
+
+
+
+
+# 120个常用货源网站，收藏！
+
+
+
+## 一、综合批发
+
+**阿里巴巴：**[阿里巴巴1688.com - 全球领先的采购批发平台,批发网](https://link.zhihu.com/?target=http%3A//1688.com/)
+
+**环球资源：**[全球资源网-是整合现实资源和网络资源全球性综合性服务商](https://link.zhihu.com/?target=http%3A//qqzyw.com/)
+
+**环球华品：** [chinabrands.cn/](https://link.zhihu.com/?target=http%3A//chinabrands.cn/)
+
+**义乌购：** [义乌购_全球小商品批发平台,批发网](https://link.zhihu.com/?target=http%3A//yiwugo.com/)
+
+**53货源：** [53货源网_提供淘宝网店代理代销以及微商货源一件代发平台](https://link.zhihu.com/?target=http%3A//53shop.com/)
+
+**买购网：** [品牌|知识→买购网MAIGOO®™品牌十大与知识生活十大排行榜门户](https://link.zhihu.com/?target=http%3A//maigoo.com/)
+
+**乐万汇批发城：** [乐万汇批发城|小商品批发|饰品批发|小商品混批|小商品批发网|义乌小商品批发市场|义乌商品配送|网店货源|2元店货源-义乌商品混批网](https://link.zhihu.com/?target=http%3A//sphunpi.com/)
+
+**北极光供应链 ：** [aurorascm.com](https://link.zhihu.com/?target=http%3A//aurorascm.com)
+
+**浙江名营企业网：** [浙江民营企业网-浙江中小企业网上贸易中心，领先的浙江产业集群B2B电子商务平台](https://link.zhihu.com/?target=http%3A//zj123.com/)
+
+
+
+## 二、五金、工业、机械、电子批发网
+
+**中国制造网：** [中国制造网-立足内贸领域，专注中国制造的B2B电子商务平台](https://link.zhihu.com/?target=http%3A//cn.made-in-china.com/)
+
+**中国供应商网：** [中国供应商 - 免费B2B信息发布网站，百度爱采购官方合作平台](https://link.zhihu.com/?target=http%3A//cn.china.cn/)
+
+**慧聪网：** [慧聪网-中小企业经营服务平台](https://link.zhihu.com/?target=http%3A//hc360.com/)
+
+**工品汇：** [工品汇_一站式工业用品采购平台_(VIPMRO.COM)](https://link.zhihu.com/?target=http%3A//vipmro.com/)
+
+**工邦邦：** [工邦邦--专心服务工业用品经销商](https://link.zhihu.com/?target=http%3A//gongbangbang.com/)
+
+**西域：** [西域-MRO数字供应链专家,一站式mro工业品采购商城](https://link.zhihu.com/?target=http%3A//ehsy.com/)
+
+**网商网：** [网商网 - 建网站 发信息 做推广就上网商网](https://link.zhihu.com/?target=http%3A//onwsw.com/)
+
+**八方资源网：** [八方资源网-赢造自由的网上贸易](https://link.zhihu.com/?target=http%3A//b2b168.com/)
+
+**世界工厂网：** [世界工厂网-企业线上生态建设服务的先行者](https://link.zhihu.com/?target=http%3A//gongchang.com/)
+
+**环球贸易网 ：** [环球贸易网_连接商务资讯与网络贸易的桥梁](https://link.zhihu.com/?target=http%3A//china.herostart.com/)
+
+**汽配人：** [汽车配件_汽车配件批发网/汽车零配件大全 - 汽配人网](https://link.zhihu.com/?target=http%3A//qipeiren.com/peijian/)
+
+**产品网：** [装载机_挖掘机_推土机_工程机械-MARS工程机械网](https://link.zhihu.com/?target=http%3A//21-mars.com/)
+
+**一呼百应网：** [一呼百应_工业品直卖网_企业商铺](https://link.zhihu.com/?target=http%3A//b2b.youboy.com/)
+
+**华强电子网：** [华强电子网-IC/电子元器件材料采购交易平台 Hqew.com](https://link.zhihu.com/?target=http%3A//hqew.com/)
+
+**猎芯网：** [全球电子供应链智慧平台_IC电子元器件网上交易平台-猎芯网](https://link.zhihu.com/?target=http%3A//ichunt.com/)
+
+## 三、家纺家居批发网
+
+**91家纺网：** [91家纺网 - 叠石桥网销导航,网销微商供货平台,找家纺网销货源,一件代发](https://link.zhihu.com/?target=http%3A//91jf.com/)
+
+
+
+## 四、美妆批发网
+
+**NALA美妆网：** [娜拉美妆采销NALA - 为全球美妆商家提供采销服务的平台](https://link.zhihu.com/?target=http%3A//nala.com.cn/)
+
+**个秀名妆网：** [个秀名妆-韩国化妆品批发分销-进口化妆品批发一件代发-进口化妆品代理分销](https://link.zhihu.com/?target=http%3A//geshow.com/)
+
+**中妆网：** [zghzp.com/](https://link.zhihu.com/?target=http%3A//zghzp.com/)
+
+**优分销：**[alifenxiao.com/](https://link.zhihu.com/?target=http%3A//alifenxiao.com/)
+
+
+
+
+
+## 五、珠宝首饰批发网
+
+**批发户：** [pfhoo.com/](https://link.zhihu.com/?target=http%3A//pfhoo.com/)
+
+
+
+## 六、食品批发网
+
+**先冻网：** [xiandongmall.com/xdmall/](https://link.zhihu.com/?target=http%3A//xiandongmall.com/xdmall/)
+
+**58食品网：** [58食品网-食品招商加盟代理，食品批发平台](https://link.zhihu.com/?target=http%3A//58food.com/)
+
+**食品代理网：** [食品代理网-专业的食品代理,食品招商,饮料代理,饮料招商网](https://link.zhihu.com/?target=http%3A//spdl.com/)
+
+**众人店 ：** [众人店-土特产淘宝网店代运营_免费发布特产货源招商加盟推广](https://link.zhihu.com/?target=http%3A//zhongrendian.com/)
+
+
+
+## 七、医药、成人用品批发网
+
+**360好药网：** [360haoyao.com/](https://link.zhihu.com/?target=http%3A//360haoyao.com/)
+
+**性商网：** [性商网_情趣用品批发,性用品批发,避孕套批发采购市场,成人用品批发上百晓猫性商网](https://link.zhihu.com/?target=http%3A//chinasexq.com/)
+
+
+
+## 八、母婴童装、玩具批发网
+
+**挚爱母婴网：** [挚爱母婴-高端母婴用品B2B分销平台，孕婴童品牌招商，免费加盟代理，一件代发，正品货源](https://link.zhihu.com/?target=http%3A//babyzhiai.net/)
+
+**玩具巴巴：** [玩具网,玩具批发-做玩具就上玩具巴巴,10万玩具采购商每天必看网站](https://link.zhihu.com/?target=http%3A//toybaba.com/)
+
+**生意网：** [童装批发,童鞋批发厂家直销,湖州织里童装批发市场，童装一手货源上生意网（3e3e）](https://link.zhihu.com/?target=http%3A//3e3e.cn/)
+
+**乐贝贝童装批发网：** [乐贝贝童装批发网-外贸童装批发厂家直销|网上品牌童装批发市场|儿童服装批发首选](https://link.zhihu.com/?target=http%3A//lebeibei.com/)
+
+**织里童装网：** [织里童装网 - 湖州织里本地的童装城行业,织里门户童装批发行业网站](https://link.zhihu.com/?target=http%3A//zhilitongzhuang.com/)
+
+
+
+
+
+## 九、服装批发网
+
+**四季星座：** [[四季星座网\]杭州站-四季星座网-四季星座论坛-四季青服装货源，四季青市场，网店代理货源，网上服装进货，男装淘宝货源，女装淘宝货源，网络货源,网店货源导航,淘宝店货源,实体网络进货,杭州网店之家,杭州专业网店货源,杭州网店货源](https://link.zhihu.com/?target=http%3A//571xz.com/)
+
+**骏韵服饰批发网：** [shuiyipifa.cn](https://link.zhihu.com/?target=http%3A//shuiyipifa.cn)
+
+**中国服装：** [中服网 - 服装,服饰,服装品牌,服装招商,服装代理加盟,女装,男装,童装,休闲装,服装媒体,服装设计,服装资讯](https://link.zhihu.com/?target=http%3A//efu.com.cn/)
+
+**中国女装网：** [女装网-女装品牌信息展示与口碑交流,品牌女装招商加盟代理商机](https://link.zhihu.com/?target=http%3A//43er.com/)
+
+**档口网：** [档口网－品质女装批发羽绒服批发货源直供网](https://link.zhihu.com/?target=http%3A//dangkou.net/)
+
+**聚衣网：** [&](https://link.zhihu.com/?target=http%3A//juyi5.cn/)
+
+**货捕头：** [货捕头杭州女装网-服装批发代理_时尚精品女装货源一件代发](https://link.zhihu.com/?target=http%3A//hznzcn.com/)
+
+**搜款网：** [广州服装批发市场 - 女装男装货源微商代理拿货 - 服装一件代发批发网 - 搜款网](https://link.zhihu.com/?target=http%3A//vvic.com/gz)
+
+**杭州的网商园：** [网商园-专业网店货源批发分销平台](https://link.zhihu.com/?target=http%3A//wsy.com/)
+
+**广州17网：** [【17网_一起做网店】广州服装批发_时尚女装一手货源_广州批发市场拿货网](https://link.zhihu.com/?target=http%3A//gz.17zwd.com/)
+
+**衣联网：** [衣联网,服装批发市场新的领航者,广州十三行,杭州四季青2018新款品牌男装女装批发](https://link.zhihu.com/?target=http%3A//eelly.com/)
+
+**一起做网店：** [【17网_一起做网店】广州服装批发_时尚女装一手货源_广州批发市场拿货网](https://link.zhihu.com/?target=http%3A//gz.17zwd.com/)
+
+**我要做网店：** [360网批_一手货源_网络服装批发市场_vvic搜款网_17一起做网店_四季星座_网上服装批发_网店之家](https://link.zhihu.com/?target=http%3A//51zwd.com/)
+
+**杭州女装网：** [货捕头杭州女装网-服装批发代理_时尚精品女装货源一件代发](https://link.zhihu.com/?target=http%3A//hznzcn.com/)
+
+**315货源网：** [315hyw.com/](https://link.zhihu.com/?target=http%3A//315hyw.com/)
+
+**深圳地摊网：**[地摊货批发网 - 专注地摊货源批发、摊位、顺口溜及跑江湖新产品 -](https://link.zhihu.com/?target=http%3A//szbdt.com/)
+
+**聚衣网（中老年女装）：**[&](https://link.zhihu.com/?target=http%3A//juyi5.cn/)
+
+**批批网：**[pipipifa.com/](https://link.zhihu.com/?target=http%3A//pipipifa.com/)
+
+**全球内衣网（内衣）：**[www.ny.cn/](https://link.zhihu.com/?target=http%3A//www.ny.cn/)
+
+
+
+
+
+## 十、鞋包批发网
+
+**台州的开山网：** [开山网 - 女鞋货源上开山，网销女鞋货源，7000家实体认证的浙江女鞋工厂批发代销货源平台，淘宝女鞋货源，微商女鞋货源不二之选](https://link.zhihu.com/?target=http%3A//k3.cn/web/welcome)
+
+**中国鞋网：** [中国鞋网|全球专业的中文鞋类加盟门户网站](https://link.zhihu.com/?target=http%3A//cnxz.cn/)
+
+**鞋都网：** [鞋子批发,品牌女鞋,高跟鞋,运动鞋,网上批发商城,女鞋批发网 _鞋都网](https://link.zhihu.com/?target=http%3A//800vi.com/)
+
+**爱搜鞋：** [【爱搜鞋网批】一手货源](https://link.zhihu.com/?target=http%3A//sooxie.com/)
+
+**新款网：** [泉州新款网，新款网男鞋网销货源，福建男鞋网销货源，幸福街女鞋网销货源，网销男鞋货源一件代发，全国最低价](https://link.zhihu.com/?target=http%3A//xingfujie.cn/web/)
+
+**爱买卖：** [爱买卖（2mm）-温岭女鞋批发-女鞋批发-女鞋货源-女鞋厂家-鞋子批发网](https://link.zhihu.com/?target=http%3A//2mm.cn/)
+
+**美美淘：** [域名错误-女鞋厂家 女鞋商家 女鞋公司 女鞋分销](https://link.zhihu.com/?target=http%3A//mmgg.com/)
+
+**中国鞋库网：** [鞋库网](https://link.zhihu.com/?target=http%3A//cnxieku.com/index)
+
+**购途网：** [购途网（go2）-女鞋批发-女鞋货源-女鞋厂家-鞋子批发-成都女鞋批发市场](https://link.zhihu.com/?target=http%3A//go2.cn)
+
+**鞋裤网：** [鞋库网](https://link.zhihu.com/?target=http%3A//cnxieku.com/index)
+
+**环球鞋网：** [shoes.net.cn/](https://link.zhihu.com/?target=http%3A//shoes.net.cn/)
+
+**货源之家：** [货源之家 - 可信微商货源_网店货源_批发代理加盟_货源网](https://link.zhihu.com/?target=http%3A//huoyuanzhijia.com/)
+
+**箱包网：** [箱包网 - 箱包专业市场与箱包行业人脉服务平台](https://link.zhihu.com/?target=http%3A//31bag.com/)
+
+**包牛牛：** [包牛牛(BAO66.CN) - 白沟包牛牛，包牛牛网供，河北网包批发，保定网包批发，白沟网包批发，网包一件代发，全国最低价](https://link.zhihu.com/?target=http%3A//bao66.cn/web/)
+
+**亚马逊：** [亚马逊中国 z.cn, 一站放心购全球](https://link.zhihu.com/?target=http%3A//amazon.cn/)
+
+**全球速卖通：** [AliExpress - Online Shopping for Popular Electronics, Fashion, Home & Garden, Toys & Sports, Automobiles and More products - AliExpress](https://link.zhihu.com/?target=http%3A//aliexpress.com/)
+
+**贸管家：** [balalaba.com/](https://link.zhihu.com/?target=http%3A//balalaba.com/)
+
+**兰亭集势：** [supplierportal.litb.cn/metis](https://link.zhihu.com/?target=http%3A//supplierportal.litb.cn/metis)
+
+**郭煌网：** [敦煌网中小商家的快速外贸平台-全球领先的跨境电商外贸B2B平台](https://link.zhihu.com/?target=http%3A//seller.dhgate.com/)
