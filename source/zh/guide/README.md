@@ -313,9 +313,19 @@ PPT 超级市场 https://pptsupermarket.com/
 AirPano https://airpano.org.cn/
 小鸡词典 https://jikipedia.com/
 
-
-
-
+资源网
+搜图导航 https://www.91sotu.com/
+酷搜（网盘资源）https://www.kolsou.com/
+热点搜查 http://www.make.mk/
+极简插件（chrome插件） https://chrome.zzzmh.cn/
+淘声 https://www.tosound.com/
+电影推荐 · MVCAT https://www.mvcat.com/
+逗比拯救世界表情包网站 https://www.dbbqb.com/
+书享家（分享读书） http://shuxiangjia.cn/
+插图、图标 https://undraw.co/illustrations
+考拉新媒体导航 https://www.kaolamedia.com/
+求字体 https://www.qiuziti.com/
+高清壁纸搜索引擎 https://wallhaven.cc/
 
 # 120个常用货源网站，收藏！
 
